@@ -5,3 +5,8 @@ Die hochschwangere Braut wird von Bill mit einem Kopfschuss lebensgefährlich ve
 und liegt vier Jahre auf einer Pflegestation im Koma.
 Als sie daraus erwacht, flüchtet sie aus dem Krankenhaus, 
 stellt eine Todesliste („kill bill“) auf und arbeitet sie schrittweise ab.
+##Eigenschaften
+* Beherrscht die Five Point Palm Explodieren Herz - Technik
+* Begeisterte Kung Fu Kämpferin
+* Arbeitet strategisch Aufgaben ab
+* Geht über Leichen
