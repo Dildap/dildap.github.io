@@ -12,3 +12,8 @@ stellt eine Todesliste („kill bill“) auf und arbeitet sie schrittweise ab.
 * Begeisterte Kung Fu Kämpferin
 * Arbeitet strategisch Aufgaben ab
 * Geht über Leichen
+
+
+Lieblingszitat:
+
+> Bitch, you don't have a future.
