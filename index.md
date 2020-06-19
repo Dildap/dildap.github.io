@@ -17,3 +17,5 @@ stellt eine Todesliste („kill bill“) auf und arbeitet sie schrittweise ab.
 Lieblingszitat:
 
 > Bitch, you don't have a future.
+
+<img src="https://www.blairwitch.de/wp-content/uploads/2019/12/kill-bill-volume-1-uma-thurman.jpg"/>
